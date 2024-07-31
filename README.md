@@ -1,1 +1,1 @@
-# jinnyleeart.github.i
+# jinnyleeart.github.io
